@@ -15,4 +15,6 @@ Pois quando a saudade bater, lembra que sou sua huhum.
 
     parabéns meu amor, feliz niver ( queria estar ai , mas né kkkk) tenha um otimo dia bb❤
 
-![.](https://www.wallpaperflare.com/elizabeth-liones-meliodas-nanatsu-no-taizai-wallpaper-uckpu)
+
+
+![](https://media1.tenor.com/m/lo-XxjrAEl4AAAAC/hug.gif)
